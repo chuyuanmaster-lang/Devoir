@@ -1,2 +1,0 @@
-# Devoir
-Devoir_1_CHEDDADI_MOHAMMED_LST_ID
